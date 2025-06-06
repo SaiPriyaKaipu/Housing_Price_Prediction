@@ -6,9 +6,5 @@ Housing values are crucial for purchasers, sellers, investors, and real estate a
 
 Sai Priya Kaipu 
 
-Nitika 
 
-Sai Kiran Varada
-
-Harmanpreet Singh
 
